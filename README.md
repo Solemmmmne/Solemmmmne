@@ -8,13 +8,5 @@
 
 
 
-𝒰𝓈 𝒾𝓃 𝑒𝓋𝑒𝓇𝓎 𝑜𝓉𝒽𝑒𝓇 𝓊𝓃𝒾𝓋𝑒𝓇𝓈𝑒.![322](https://github.com/user-attachments/assets/2a9126e4-aa1d-4a53-b78f-2c0c6197dc1a)
 
-![image](https://github.com/user-attachments/assets/36a455ff-8e1f-4b73-b420-12e3fef53ffe)
-
-![047b11c486baa24f66593abfef438050](https://github.com/user-attachments/assets/1d1d4542-a421-4ec6-8b9a-96ef32162fc8)
-
-![7dad5ae30a916c4bdf91bf44002https://ph.pinterest.com/pin/39617671718537329/ac98d](https://github.com/user-attachments/assets/1e39618a-ce40-45a7-b162-9934ab014130)
-
-![9a4e3e086853c7b75f7a42f5cf450898](https://github.com/user-attachments/assets/4a2b0a13-785c-4bfc-b010-e2e97ae212e1)
 
