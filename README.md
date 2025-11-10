@@ -1,12 +1,19 @@
-## ⲏᵢ Լₒᵥₑ𝑠~
-𝚂𝚘𝚕 𝚑𝚎𝚛𝚎! 𝙲𝚑𝚎𝚌𝚔 𝚖𝚢 𝚊𝚝𝚊 𝚊𝚗𝚍 𝚜𝚝𝚛𝚊𝚠 𝚙𝚕𝚜 {𝙿𝚜. 𝚍𝚘𝚗𝚝 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚝𝚘 𝚒𝚗𝚝. 𝚊𝚗𝚍 𝚌𝚞𝚍!}<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/225c8216-9ae0-49c5-8080-745b27454213" />
+ⲏᵢ Լₒᵥₑ𝑠~
+>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**۶۟ৎ**<img width="150" height="574" alt="68c305b0ebc20787059cf8e4a6ebb362-Photoroom" src="https://github.com/user-attachments/assets/3e33aa40-70ed-4b1c-b5f6-7318c263b220" /><img width="160" height="736" alt="1050e53eff8c161ce457c4df75c49157-Photoroom" src="https://github.com/user-attachments/assets/ef624a22-e343-4a70-9cc4-c03ba0516f8d" /><img width="140" height="967" alt="dffd8ddeb6e4b9b05781633a1f5866f9-Photoroom" src="https://github.com/user-attachments/assets/bd73a048-600a-4dce-a452-49980e727bfc" /><img width="130" height="516" alt="61ba35cfc12e3874516f65e9785a73db-Photoroom" src="https://github.com/user-attachments/assets/50f25276-f7cf-4ac6-b506-7b4b4e09f05d" /> **؛༊**
 
 
 
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7de3ffce-9b4a-4681-86cf-8b88e5c90762" /> `~'
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ┅┅┅┅┅┅┅༻❁༺┅┅┅┅┅┅┅
+‎  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝕴 𝖒𝖎𝖘𝖘 𝖈𝖑𝖔𝖚𝖉𝖘:
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/6974b556-ae23-4619-8e38-625870ea7a9c" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤʀɪʟᴇꜱ
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ18'
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3jnurzkawv3ocfqxtgf4otu7e&cover_image=false&theme=novatorem&show_offline=true&background_color=472876&interchange=false&bar_color=ba5ea9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsǝlıᴚ
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31u3jnurzkawv3ocfqxtgf4otu7e&cover_image=false&theme=novatorem&show_offline=true&background_color=472876&interchange=false&bar_color=ba5ea9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
